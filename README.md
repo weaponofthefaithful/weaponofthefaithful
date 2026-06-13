@@ -1,4 +1,1 @@
-<img width="900" height="500" alt="Post by @felinerin · 1 image" src="https://github.com/user-attachments/assets/4376cb08-72cc-437f-9426-d08377be3faa" />
-
-
-───────────────────────────────────────୨ৎ───────────────────────────────────────
+<img width="600" height="337" alt="Post by @felinerin · 1 image" src="https://github.com/user-attachments/assets/72019c4c-f713-4395-b174-c4e0594fa9d1" />
